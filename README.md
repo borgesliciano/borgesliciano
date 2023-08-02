@@ -6,5 +6,4 @@
 - 🤔  Gosto muito de jogar e mexer no computador
 - 💬  Ja programei umas vezes .lua mas ainda nao sei mexer direito nisso
 
-![](
-[https://media.tenor.com/cc6o8VsWoGoAAAAj/doge-pogger.gif](https://media.tenor.com/JV5WKN5VqnAAAAAM/h3artzu.gif)https://media.tenor.com/JV5WKN5VqnAAAAAM/h3artzu.gif)
+![](https://media.tenor.com/ZLiFjE3p6iwAAAAd/everson-zoio-alek.gif)
