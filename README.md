@@ -1,4 +1,4 @@
-### boas Vindas ao meu perfil 🖥️
+### Boas Vindas ao meu perfil 🖥️
 
 - 🤵 Meu nome é Luciano Borges
 - 🌱 Estou no 1° do ensino medio
